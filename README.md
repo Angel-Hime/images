@@ -1,0 +1,1 @@
+This is literally for repository for using online image links - there is nothing of interest here for anyone but myself. These images are not my own but are largely editted versions of original image files.
